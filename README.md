@@ -6,4 +6,4 @@ Your donations can contribute to the ongoing improvement of DrawBeep. Every cont
 
 💚🧚
 [PayPal Donation Link](https://www.paypal.me/awdsjlp)
-💚🦖
+🦖💚
